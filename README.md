@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @bgthama.
+- 👀 I’m interested in Development.
